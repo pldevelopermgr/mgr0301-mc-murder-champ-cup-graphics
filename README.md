@@ -1,0 +1,1 @@
+# mgr0301-mc-murder-champ-cup-graphics
